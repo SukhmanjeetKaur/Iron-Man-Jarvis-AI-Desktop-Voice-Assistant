@@ -45,6 +45,25 @@ Asusal Jarvis my buddy opened Facebook for me
 
 ![jarvis8](https://user-images.githubusercontent.com/87376487/127761419-ad53f584-1239-44ab-a30d-cbe3d7376aeb.png)
 
+After getting bored using instagram and facebook, I want to relax myself so Jarvis 'Play Music'. Let's check whether Jarvis made me to relax or not :D 
+
+![jarvis9](https://user-images.githubusercontent.com/87376487/127762667-d3596e05-e4c7-439c-b580-5f5681e6e1dc.png)
+
+Jarvis knows to play his role and he made to relax myself with Alan Walker's Beautiful Soothing Song 'Alone'
+
+![jarvis10](https://user-images.githubusercontent.com/87376487/127762716-068932f1-1086-47e3-9bc0-8d94b098f078.png)
+
+Then after relaxing myself, I decided to know about Japan as Olympics 2020 are going on in Tokyo, Japan and from childhood I am amazed with the technology of Japan. I would love to visit this place of global excellence.
+
+![jarvis11](https://user-images.githubusercontent.com/87376487/127763183-aa1cfe82-0e51-4436-904f-164f834b6741.png)
+
+I am glad to have Jarvis in my life who works automatically on my one command :)
+
+I hope you will like my Jarvis- Desktop A.I. Assistant. Thank You!
+
+
+
+
 
 
 
